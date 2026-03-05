@@ -6,4 +6,4 @@ Hallo!
 
 Check out my straw page, atabook and rentry for more info!
 
-![](https://files.catbox.moe/6jr3ai.png)
+![](https://files.catbox.moe/lokpfj.png)
