@@ -6,6 +6,7 @@ Check out my straw page for more info!
 
 
 
-We (YES WE) ALL LOVE MOLOSSIA!!!!
+//We (YES WE) ALL LOVE MOLOSSIA!!!!
+(none of my photos for him are working and its making me upset so i am NOT putting one up)
 
-![](https://files.catbox.moe/wr2u7b.png)
+
