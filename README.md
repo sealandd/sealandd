@@ -1,4 +1,4 @@
-NOTICE ; I apologize if the rentry is not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name!
+NOTICE ; I apologize if the rentry is not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name which is just sealand and They/he!
   
   Hello! u can call me coat guy...or sealand
   
