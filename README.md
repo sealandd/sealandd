@@ -3,7 +3,7 @@ NOTICE ; I have taken down my rentry, i apologize if the rentry was not working 
   Hello! u can call me kita or sealand
   
 ![](https://files.catbox.moe/n4rtos.jpg)
-(Art credits; Honoka on Deviantart)
+(This is not my art!! Art credits go to Honoka on Deviantart)
 Check out my straw page for more info!
 
 !!!!!!When i joke about things please know they are completely out of sealands character and also dont make REAL inappropriate comments as i have stated i am 14 and i have a gf!!!!!!!
