@@ -1,9 +1,9 @@
-NOTICE ; I have taken down my rentry, i apologize if the rentry was not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name which is just sealand and They/he! Update; I've made a new page for those who want to draw on my strawpage, i've been told its very laggy, i am so very sorry.
+𝙉𝙊𝙏𝙄𝘾𝙀 ; 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙖𝙠𝙚𝙣 𝙙𝙤𝙬𝙣 𝙢𝙮 𝙧𝙚𝙣𝙩𝙧𝙮, 𝙞 𝙖𝙥𝙤𝙡𝙤𝙜𝙞𝙯𝙚 𝙞𝙛 𝙩𝙝𝙚 𝙧𝙚𝙣𝙩𝙧𝙮 𝙬𝙖𝙨 𝙣𝙤𝙩 𝙬𝙤𝙧𝙠𝙞𝙣𝙜 𝙛𝙤𝙧 𝙨𝙤𝙢𝙚, 𝙞 𝙪𝙣𝙛𝙤𝙧𝙩𝙪𝙣𝙖𝙩𝙚𝙡𝙮 𝙘𝙖𝙣𝙣𝙤𝙩 𝙛𝙞𝙭 𝙞𝙩, 𝙩𝙝𝙚 𝙧𝙚𝙣𝙩𝙧𝙮 𝙞𝙨 𝙣𝙤𝙩 𝙖𝙣 𝙞𝙢𝙥𝙤𝙧𝙩𝙖𝙣𝙩 𝙙𝙚𝙩𝙖𝙞𝙡! 𝙄𝙩 𝙞𝙨 𝙟𝙪𝙨𝙩 𝙢𝙮 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 𝙖𝙣𝙙 𝙣𝙖𝙢𝙚 𝙬𝙝𝙞𝙘𝙝 𝙞𝙨 𝙟𝙪𝙨𝙩 𝙨𝙚𝙖𝙡𝙖𝙣𝙙 𝙖𝙣𝙙 𝙏𝙝𝙚𝙮/𝙝𝙚! 𝙐𝙥𝙙𝙖𝙩𝙚; 𝙄'𝙫𝙚 𝙢𝙖𝙙𝙚 𝙖 𝙣𝙚𝙬 𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙩𝙝𝙤𝙨𝙚 𝙬𝙝𝙤 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙙𝙧𝙖𝙬 𝙤𝙣 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚, 𝙞'𝙫𝙚 𝙗𝙚𝙚𝙣 𝙩𝙤𝙡𝙙 𝙞𝙩𝙨 𝙫𝙚𝙧𝙮 𝙡𝙖𝙜𝙜𝙮, 𝙞 𝙖𝙢 𝙨𝙤 𝙫𝙚𝙧𝙮 𝙨𝙤𝙧𝙧𝙮.
   
-  Hello! u can call me Kita or Sealand. I am quite awkward and shy when talking to people so please keep this in mind when speaking to me! But i enjoy making new friends so you are allowed to interact with me unless my name says "afk" or you saw me say i was going afk! I sometimes may not know how to respond to some messages so i apologize! You can friend me on discord, instagram or tiktok if you would like, you just have to ask. The only times i would say no is if you're on my DNI! If i say something that has upsetted you, please let me know!!
+  𝙃𝙚𝙡𝙡𝙤! 𝙪 𝙘𝙖𝙣 𝙘𝙖𝙡𝙡 𝙢𝙚 𝙆𝙞𝙩𝙖 𝙤𝙧 𝙎𝙚𝙖𝙡𝙖𝙣𝙙. 𝙄 𝙖𝙢 𝙦𝙪𝙞𝙩𝙚 𝙖𝙬𝙠𝙬𝙖𝙧𝙙 𝙖𝙣𝙙 𝙨𝙝𝙮 𝙬𝙝𝙚𝙣 𝙩𝙖𝙡𝙠𝙞𝙣𝙜 𝙩𝙤 𝙥𝙚𝙤𝙥𝙡𝙚 𝙨𝙤 𝙥𝙡𝙚𝙖𝙨𝙚 𝙠𝙚𝙚𝙥 𝙩𝙝𝙞𝙨 𝙞𝙣 𝙢𝙞𝙣𝙙 𝙬𝙝𝙚𝙣 𝙨𝙥𝙚𝙖𝙠𝙞𝙣𝙜 𝙩𝙤 𝙢𝙚! 𝘽𝙪𝙩 𝙞 𝙚𝙣𝙟𝙤𝙮 𝙢𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙨𝙤 𝙮𝙤𝙪 𝙖𝙧𝙚 𝙖𝙡𝙡𝙤𝙬𝙚𝙙 𝙩𝙤 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 𝙪𝙣𝙡𝙚𝙨𝙨 𝙢𝙮 𝙣𝙖𝙢𝙚 𝙨𝙖𝙮𝙨 "𝙖𝙛𝙠" 𝙤𝙧 𝙮𝙤𝙪 𝙨𝙖𝙬 𝙢𝙚 𝙨𝙖𝙮 𝙞 𝙬𝙖𝙨 𝙜𝙤𝙞𝙣𝙜 𝙖𝙛𝙠! 𝙄 𝙨𝙤𝙢𝙚𝙩𝙞𝙢𝙚𝙨 𝙢𝙖𝙮 𝙣𝙤𝙩 𝙠𝙣𝙤𝙬 𝙝𝙤𝙬 𝙩𝙤 𝙧𝙚𝙨𝙥𝙤𝙣𝙙 𝙩𝙤 𝙨𝙤𝙢𝙚 𝙢𝙚𝙨𝙨𝙖𝙜𝙚𝙨 𝙨𝙤 𝙞 𝙖𝙥𝙤𝙡𝙤𝙜𝙞𝙯𝙚! 𝙔𝙤𝙪 𝙘𝙖𝙣 𝙛𝙧𝙞𝙚𝙣𝙙 𝙢𝙚 𝙤𝙣 𝙙𝙞𝙨𝙘𝙤𝙧𝙙, 𝙞𝙣𝙨𝙩𝙖𝙜𝙧𝙖𝙢 𝙤𝙧 𝙩𝙞𝙠𝙩𝙤𝙠 𝙞𝙛 𝙮𝙤𝙪 𝙬𝙤𝙪𝙡𝙙 𝙡𝙞𝙠𝙚, 𝙮𝙤𝙪 𝙟𝙪𝙨𝙩 𝙝𝙖𝙫𝙚 𝙩𝙤 𝙖𝙨𝙠. 𝙏𝙝𝙚 𝙤𝙣𝙡𝙮 𝙩𝙞𝙢𝙚𝙨 𝙞 𝙬𝙤𝙪𝙡𝙙 𝙨𝙖𝙮 𝙣𝙤 𝙞𝙨 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙤𝙣 𝙢𝙮 𝘿𝙉𝙄! 𝙄𝙛 𝙞 𝙨𝙖𝙮 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙩𝙝𝙖𝙩 𝙝𝙖𝙨 𝙪𝙥𝙨𝙚𝙩𝙩𝙚𝙙 𝙮𝙤𝙪, 𝙥𝙡𝙚𝙖𝙨𝙚 𝙡𝙚𝙩 𝙢𝙚 𝙠𝙣𝙤𝙬!!
 
 
-   !!!!!!When i joke about things please know they are completely out of Sealands character and also dont make REAL inappropriate comments as i have stated i am 14 and i have a girlfriend!!!!!!!
+   !!!!!!𝙒𝙝𝙚𝙣 𝙞 𝙟𝙤𝙠𝙚 𝙖𝙗𝙤𝙪𝙩 𝙩𝙝𝙞𝙣𝙜𝙨 𝙥𝙡𝙚𝙖𝙨𝙚 𝙠𝙣𝙤𝙬 𝙩𝙝𝙚𝙮 𝙖𝙧𝙚 𝙘𝙤𝙢𝙥𝙡𝙚𝙩𝙚𝙡𝙮 𝙤𝙪𝙩 𝙤𝙛 𝙎𝙚𝙖𝙡𝙖𝙣𝙙𝙨 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧 𝙖𝙣𝙙 𝙖𝙡𝙨𝙤 𝙙𝙤𝙣𝙩 𝙢𝙖𝙠𝙚 𝙍𝙀𝘼𝙇 𝙞𝙣𝙖𝙥𝙥𝙧𝙤𝙥𝙧𝙞𝙖𝙩𝙚 𝙘𝙤𝙢𝙢𝙚𝙣𝙩𝙨 𝙖𝙨 𝙞 𝙝𝙖𝙫𝙚 𝙨𝙩𝙖𝙩𝙚𝙙 𝙞 𝙖𝙢 14 𝙖𝙣𝙙 𝙞 𝙝𝙖𝙫𝙚 𝙖 𝙜𝙞𝙧𝙡𝙛𝙧𝙞𝙚𝙣𝙙!!!!!!!
   
 ![](https://files.catbox.moe/n4rtos.jpg)
 (This is not my art!! Art credits go to Honoka on Deviantart)
