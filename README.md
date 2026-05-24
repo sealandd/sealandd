@@ -4,6 +4,7 @@ Hihihihi! my name is sealand or kita okok , i am quite awkward and shy when i am
 
 ![](https://files.catbox.moe/4qev6s.gif)
 
+Second account; @vittorinooo !
 
 !!Please know, when i joke about things, they are always completely out of sealands character!!
 ![](https://files.catbox.moe/n4rtos.jpg)
