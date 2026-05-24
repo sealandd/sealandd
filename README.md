@@ -1,3 +1,5 @@
+!!DO NOT FOLLOW OR EVEN SPAM FOLLOW ME IF YOU ARE A PROSHIPPER OR DARKSHIPPER😂!! You know who you are.... i saw u👀👀 ![](https://files.catbox.moe/3r52dk.png) cough cough
+
 Hihihihi! my name is sealand or kita okok , i am quite awkward and shy when i am first-time talking to people so pls keep this in mind when speaking to me!! i enjoy making new friends and i love talking to people!! so you are allowed to interact with me unless my name says afk or i say i am going afk! sometimes i may not know how to respond to something so i aplogize!! you can friend me on discord, instagram, tiktok if you would like! but please ask me! If i have said something that has upsetted you or made you uncomfortable please let me know!!
 
 ![](https://files.catbox.moe/4qev6s.gif)
