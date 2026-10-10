@@ -2,7 +2,7 @@
 <h3 align="center">
 <br><sub><a href="https://sealandsata.atabook.org/"> sealands ata  </a>  ⏝        <a 
 
-<br><sub><a href=" https://rentry.co/Sealandintro "> sealands rentry ♩</a>
+<br><sub><a href="https://rentry.co/Sealandintro"> sealands rentry ♩</a>
 
 <br><sub><a href="https://asksealandd.straw.page"> draw stuff! ♩</a>
 
